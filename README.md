@@ -1,0 +1,1 @@
+# allgamescoin_whitepaper
